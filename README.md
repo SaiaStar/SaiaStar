@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SaiaStar
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning python, java
+- 📫 How to reach me on telegram
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love gorls
